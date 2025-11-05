@@ -1,4 +1,4 @@
-# Hii, I'm Sarthak Sharma 👋
+# Hii, I'm Sarthak Sharma, Data Analyst👋
 # 💫 About Me:
 🔭 I’m currently working on Shree Vasu Logistics Limited<br>🌱 I’m currently learning DA Tools<br>💬 Ask me about anything<br>
 
